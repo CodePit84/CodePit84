@@ -66,6 +66,6 @@ Surprenez moi 😉
 ## ⚡ Fun facts
 
 * J'aide beaucoup mes collègues en apprentissage ;
-* Youtuber depuis bientôt 15 ans ;) ;
+* Youtuber depuis bientôt 15 ans 🎵 ;
 * Curieux de nature ;
 * J'aime apprendre et sortir de ma zone de confort 😉!
