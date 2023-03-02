@@ -2,7 +2,7 @@
 
 ## 🔭 Qui suis-je ?
 
-Je suis me forme dans l'utilisation du framework Symfony.
+Je me forme dans l'utilisation du framework Symfony.
 
 
 Mes compétences :
