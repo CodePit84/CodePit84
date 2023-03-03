@@ -38,7 +38,7 @@ __JavaScript :__
 ## 🌱 Qu'est-ce que je fais de beau actuellement ?
 
 
-Je suis en formation à l'AFPA en CDA (Concepteur Développeur d'Applications.
+Je suis en formation à l'AFPA en CDA (Concepteur Développeur d'Applications).
 
 > J'ai créé des applications en PHP.
 
